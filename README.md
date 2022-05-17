@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @PhantomPhoenixCodex~
+- 👀 I’m interested in art, drawing, 3D animation, voice acting and video editing.
+- 🌱 I’m currently learning 3D animation and game developing.
+- 💞️ I’m looking to collaborate on video editing and beta games.
+- 📫 You can reach me by following my YouTube: GemPenn, DeviantArt: SweetSkauKhana2016 and Wattpad: @SweetSakuKhana2016
